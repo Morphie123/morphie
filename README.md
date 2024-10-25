@@ -1,3 +1,3 @@
 # morphie
 
-im just here to learn
+im just here to learn lo
